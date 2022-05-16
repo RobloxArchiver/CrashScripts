@@ -1,3 +1,4 @@
 # CrashScripts
 made by me for waterworld
-# GLORY TO UKRAINE YOU RUSSIAN BASTARDS
+# Created due to Ad posted by WaterWorld.
+Made Public because WW is more dead than a man that fell off a plane.
